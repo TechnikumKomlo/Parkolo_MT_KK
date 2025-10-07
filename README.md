@@ -1,2 +1,2 @@
 # Parkolo_MT_KK
-hjfdjg dfgkjdf gldfgfd
+Ez parkoló. Köszi!
